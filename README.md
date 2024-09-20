@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing because i'm to sucks in anything to do that
 - 📫 How to reach me ... by carrier pigeon
 - 😄 Pronouns: the way you want 
-- ⚡ Fun fact: i don't what is a girl
+- ⚡ Fun fact: i don't know what is a girl
 
 <!---
 MekNormal/MekNormal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
